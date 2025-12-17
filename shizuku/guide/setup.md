@@ -1,4 +1,4 @@
-# User manual
+hektopior@gmail.com
 
 [[toc]]
 
